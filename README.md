@@ -1,1 +1,1 @@
-# alozc.github.io
+# [Focal electrical stimulation on an alcohol disorder model using magnetic resonance imaging-compatible chronic neural monopolar carbon fiber electrodes](https://www.frontiersin.org/articles/10.3389/fnins.2022.945594/full)https://www.frontiersin.org/articles/10.3389/fnins.2022.945594/full
